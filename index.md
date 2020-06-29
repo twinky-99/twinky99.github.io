@@ -6,3 +6,5 @@ Pferdefluesterer werden Menschen genannt, die mit und ohne Worte positiv auf Pfe
 * ruhigem Umgang
 * vorausschauendem Handeln
 * ueberlegtem Vorgehen
+
+> Ich bin froh, dass Pilgrim gerne bei mir ist. Und er wird mir folgen, wohin ich auch gehe.

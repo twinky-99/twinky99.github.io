@@ -1,1 +1,1 @@
-# Pferdeflüsterer - Mythos oder Gabe? <h1> tag
+# Pferdefluesterer - Mythos oder Gabe?
